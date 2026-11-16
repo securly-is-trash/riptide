@@ -1,0 +1,1 @@
+splash images, icons, etc
